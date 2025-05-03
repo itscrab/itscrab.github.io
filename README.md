@@ -1,1 +1,1 @@
-Hello my name is crab I make Gorilla Tag content and idk if dis works but [ha](https://www.youtube.com/@Imcrab)
+WHAT'S UP! Hi I'm crab, I make stuff in Blender. Not like a blender like the softwere Blender. So yeah website
